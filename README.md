@@ -4,7 +4,7 @@
 - 💞️ I’m loving my Space
 
 
-  <img align="centre" alt="GIF" src=" https://img.freepik.com/free-photo/view-3d-woman-using-laptop_23-2150710060.jpg" width="380" height="300" />
+  <img align="centre" alt="GIF" src="https://www.freepik.com/free-ai-image/view-3d-woman-using-laptop_59999948.htm#fromView=search&term=girl+coding&page=1&position=4" width="380" height="300" />
 
 
 <!---
