@@ -4,7 +4,6 @@
 - 💞️ I’m loving my Space
 
 
-  <img align="centre" src=" https://img.freepik.com/free-photo/view-3d-businessman_23-2150709872.jpg" width="380" height="300" />
  
 
 
